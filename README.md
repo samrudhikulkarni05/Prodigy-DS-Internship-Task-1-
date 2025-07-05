@@ -39,6 +39,7 @@ Thank you for reviewing my submission!
 
 # 📬 Contact
 
-Samrudhi Kulkarni(linkedin)
+Samrudhi Kulkarni(https://www.linkedin.com/in/samrudhi-kulkarni-b85991251?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BpgDrtts4SjiBDlUyOhxvPg%3D%3D)
+
 
 
